@@ -1,0 +1,1 @@
+Hello my name is Makala Davis i'm 21 years old im from Mississippi i'm in the military i'm also married and currently stationed at Fort Stewart Ga I created this app because i wanted it ti be a safe space for people to go and recieve real life scenarios and possible help from said scenarios 
